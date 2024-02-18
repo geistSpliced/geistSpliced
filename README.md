@@ -1,6 +1,6 @@
-heya >:3
+# the interferin' wayward snek
+ayo. username's pronounced "rough spriggan"; I indeed have a Beyblade phase back then.
 
-<!---
-geistSpliced/geistSpliced is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+most of the time I go by the same username
+
+idk what else to add here atm
